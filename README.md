@@ -1,5 +1,5 @@
 # Disscusions are the place to be not here
-The worst blooket cheats out there.
+The worst chat place ever.
 
 
 
