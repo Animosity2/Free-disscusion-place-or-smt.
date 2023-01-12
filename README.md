@@ -1,4 +1,4 @@
-# Blooket-cheats-
+# Disscusions are the place to be not here
 The worst blooket cheats out there.
 
 
